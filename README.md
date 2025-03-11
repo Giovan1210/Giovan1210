@@ -24,8 +24,8 @@
 
 ### 📫 How to reach me
 
-- 📧 Email: your.email@example.com
-- 💬 WeChat: your_wechat_id
+- 📧 Email: 14945447@qq.com
+- 💬 WeChat: ---
 
 ### ⚡ Fun fact
 
